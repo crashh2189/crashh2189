@@ -5,4 +5,6 @@
 
 ---
 **Discord : tetris2189**
+
 ---
+**(BLOG)[https://blog.naver.com/bpq71qjs]**
