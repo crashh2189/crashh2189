@@ -1,4 +1,4 @@
-# **CRASHH2189's Profile | CRASHH2189의 프로필**
+# **TETRIS2189's PROFILE**
 ---
 # **===KOREAN===**
 ## **[!] 제 github에 올라오는 코딩 알고리즘 문제 풀이는 영어보다 한국어가 더 빨리 올라갈겁니다.**
